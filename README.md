@@ -1,4 +1,8 @@
 # Liste de liens et conseils pour l'entretient de la morini 350 strada
+## Magasins en ligne
+
+* https://www.tremezzo.de/
+* https://www.mdinaitalia.co.uk/
 
 ## Courroie crantée
      - Profil Pas 9.53mm - L
