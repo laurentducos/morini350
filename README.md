@@ -22,5 +22,5 @@ Référence : Courroie dentée simple 124L075 - 124L075
 - Positionnement 1er Prix
 
 ### Achat
-1 YE MOTORI à Paris 01 40 35 10 10
-2 https://www.123courroies.com/courroie-dentee-l-pas-953mm/42090-courroie-dentee-124l75.html
+1. YE MOTORI à Paris 01 40 35 10 10
+2. https://www.123courroies.com/courroie-dentee-l-pas-953mm/42090-courroie-dentee-124l75.html
